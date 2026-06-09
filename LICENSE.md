@@ -1,4 +1,4 @@
-
+elite Script for pull lucky blocks is the best pull lucky blocks Script, featuring auto-sell and unlimited stamina. Safe and powerful for all your
 
 
 
